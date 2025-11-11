@@ -45,6 +45,9 @@ https://www.canva.com/design/DAGzzYbODzg/159ad-_xaogEGoba91wbbQ/edit?utm_content
 **5. Introduction flyer. This is the first thing you’ll find when you open the box.**
 https://www.canva.com/design/DAG1LF03dGo/oRrGZIYgLawKwNHlcwoTAA/edit?utm_content=DAG1LF03dGo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
+**6. Stickers**
+https://www.canva.com/design/DAG4YdoYH5E/eYzd2iIXc22JhB5J8E9Sbw/edit?utm_content=DAG4YdoYH5E&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
 We hope you have an awesome time exploring the Bitcoin Friends Activity Box! 🎉
 Play, learn, color, and discover the world of Bitcoin in the most creative way possible. 🧩✨
 Share your creations, spread the fun, and help others learn about Bitcoin too. 💛
