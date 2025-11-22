@@ -1,7 +1,11 @@
 Bitcoin Friend Box
 --
 
+Front and Back
 https://www.canva.com/design/DAG5admmxQI/uydG33U_cEXL1Z4dSuX7Rw/edit?utm_content=DAG5admmxQI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+Left and Right
+(https://www.canva.com/design/DAG5aW8ZdCg/VwOYCk4t_1NA2F3JkHf7_Q/edit?utm_content=DAG5aW8ZdCg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 Front
 
