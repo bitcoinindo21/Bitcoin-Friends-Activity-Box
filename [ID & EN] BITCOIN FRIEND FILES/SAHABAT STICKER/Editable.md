@@ -1,4 +1,4 @@
-Bitcoin Friends Stick
+Bitcoin Friends Sticker
 --
 
 https://www.canva.com/design/DAG5aZnu3KQ/lkd5DD5XBYuSzPpaR3xxcg/edit?utm_content=DAG5aZnu3KQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
