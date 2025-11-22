@@ -1,4 +1,4 @@
-Bitcoin Friends Maze and Dot-To-Dot Sheets
+Bitcoin Friends Maze & Dot-To-Dot Sheets
 --
 
 https://www.canva.com/design/DAG5aYfU_qg/gdGViLJrRLn1M-F_HWAT6Q/edit?utm_content=DAG5aYfU_qg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
