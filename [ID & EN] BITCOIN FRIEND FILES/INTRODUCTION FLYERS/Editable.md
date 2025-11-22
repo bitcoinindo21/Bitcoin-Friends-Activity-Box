@@ -1,4 +1,4 @@
-Bitcoin Friends Flyers
+Bitcoin Friends Introduction Flyers
 --
 
 https://www.canva.com/design/DAG5aZAjv8I/eDzRF5PrK-bKxJ4HxFWGEw/edit?utm_content=DAG5aZAjv8I&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
