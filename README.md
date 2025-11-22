@@ -31,23 +31,6 @@ As mentioned earlier, here’s what’s inside the Bitcoin Friends Activity Box:
 
 ![games](https://github.com/user-attachments/assets/c72f238b-af66-4953-ac9d-ba244f977e71)
 
-Now, if you’d like to translate the text inside these games and the components into your preferred language, you can access all the design links below.
-
-**2. Puzzle design**
-https://www.canva.com/design/DAGzPZx2djc/1EUhswla4Kw1rYDDyCiuKQ/edit?utm_content=DAGzPZx2djc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
-
-**3. Maze and dot-to-dot game design**
-https://www.canva.com/design/DAG0Bi6DjCk/xvMvxkHkx4wEXLSk35-vUA/edit?utm_content=DAG0Bi6DjCk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
-
-**4. Coloring sheets (Well, since there’s no text that needs to be translated, you can simply print it out).**
-https://www.canva.com/design/DAGzzYbODzg/159ad-_xaogEGoba91wbbQ/edit?utm_content=DAGzzYbODzg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
-
-**5. Introduction flyer. This is the first thing you’ll find when you open the box.**
-https://www.canva.com/design/DAG1LF03dGo/oRrGZIYgLawKwNHlcwoTAA/edit?utm_content=DAG1LF03dGo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
-
-**6. Stickers**
-https://www.canva.com/design/DAG4YdoYH5E/eYzd2iIXc22JhB5J8E9Sbw/edit?utm_content=DAG4YdoYH5E&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
-
 We hope you have an awesome time exploring the Bitcoin Friends Activity Box! 🎉
 Play, learn, color, and discover the world of Bitcoin in the most creative way possible. 🧩✨
 Share your creations, spread the fun, and help others learn about Bitcoin too. 💛
